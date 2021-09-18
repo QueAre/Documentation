@@ -19,7 +19,7 @@
 
 **[Sahar Nouri](https://www.linkedin.com/in/sahar-nouri-812b50181)** / Toxic🍄 Girl!
 
-**[Hadi AzarNasab](https://www.linkedin.com/in/hadiazarnasab/)** / energetic⚡ boy
+**[Hadi AzarNasab](https://www.linkedin.com/in/hadiazarnasab/)** / Energetic⚡ boy
 
 ---
 **[QUEARE Website](https://QueAre.ir)**
