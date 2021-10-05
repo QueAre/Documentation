@@ -2,4 +2,4 @@
 
 
 ---
-**[QUEARE Website](https://QueAre.ir)**
+**[QueAre! Website](https://QueAre.ir)**
